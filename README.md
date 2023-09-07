@@ -1,1 +1,1 @@
-# Torsdagsopgave7SeptemberOttoDyva
+# Torsdagsopgave7SeptemberOttoDyvaNavn: Otto Dyva ToubroStudiemail: cph-ot@cphbusiness.dk
